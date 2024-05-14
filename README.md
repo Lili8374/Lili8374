@@ -8,5 +8,6 @@ Meu nome é Lívia Luz
 
   ### Você entrar em contato comigo 📫
 
- lili8374@gmail.com
- @Lili8374
+ alurastartestudante@email.com
+
+ @alurastartestudante
